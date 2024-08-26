@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @feelbox2024
-- 👀 I’m interested in Psychology,Philosogy and people!
+- 👀 I’m interested in Psychology,Philosophy and people!
 - 💞️ I’m looking to collaborate on a wonderful career!
 - 📫 How to reach me by red
 
