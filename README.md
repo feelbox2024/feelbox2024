@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @feelbox2024,new to LLM!
+- 👋 Hi, I’m @feelbox2024,new to github!
 - 👀 I’m interested in Psychology,Philosophy,people And everything cool.
 - 💞️ Work for woman and freedom!
 
